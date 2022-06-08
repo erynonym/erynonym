@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @erynonym
+- 👋 Hi, I’m Eryn.
 
 
 
